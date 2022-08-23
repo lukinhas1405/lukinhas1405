@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @lukinhas1405
 - 👀 I'm interested in playing futsal
-- 🌱 I am studying
+- 🌱 I am studying T.I
 - 💞️ I try to collaborate with my studies
 - 📫 How to contact me by WhatsApp
 
